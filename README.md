@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on tech and social projects
 - 📫 How to reach me - drop a text at LinkedIn or email
 - 😄 Pronouns: she/her/hers
-- ⚡ Fun fact: I eat rice with sauce sometimes
+- ⚡ Fun fact: I love to travel and collect souvenirs
 
 <!---
 Afia-Ava/Afia-Ava is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
