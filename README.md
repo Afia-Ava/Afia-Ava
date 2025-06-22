@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Afia 
 - 😄 Pronouns: she/her/hers
-- 🌱 I’m learning to code 
+- 🌱 I love to code and build
 - 💞️ I’m looking to collaborate on tech and social projects
 - 📫 How to reach me - drop a text at LinkedIn or email
 - 🧳 I wish to visit every continent and collect *actual* bugs
